@@ -1,0 +1,1 @@
+# 20232425060_NurMina-zekes_-ube2_-dev2
